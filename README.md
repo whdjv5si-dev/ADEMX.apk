@@ -4,7 +4,7 @@
 تم تصميم هذه الأداة لتكون بمثابة محرك تعديل كامل، تجمع بين سهولة الاستخدام للمبتدئين، والقوة التقنية العميقة التي يحتاجها المحترفون.
 
 🔗 **رابط التحميل (يتضمن ملف الأداة + الناسخ):**
-[اضغط هنا للتحميل من MediaFire](https://www.mediafire.com/file/11wrewv0eppgr5o/DZ+TRIMINAL.zip/file)
+[اضغط هنا للتحميل من MediaFire]([](https://www.mediafire.com/file/11wrewv0eppgr5o/DZ+TRIMINAL.zip/file))
 
 ---
 
